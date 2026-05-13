@@ -1,4 +1,4 @@
-# 
+# Enhance Foxit PDF Editor for PC | Foxit PDF Editor for Windows with premium Foxit PDF Editor for PC | Foxit PDF Editor for Windows Helper | OCR + export-to-Excel, the #1 helper.
 
 
 
